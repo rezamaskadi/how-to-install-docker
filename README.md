@@ -11,14 +11,6 @@ PT. GITS Indonesia
 
 22 Mei 2018
 
-# Update by ?
-
-1. --
-
-# Updated at ?
-
-1. --
-
 # Type ? 
 
 Panduan atau tutorial
